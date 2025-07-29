@@ -19,8 +19,8 @@ Crystallum AI combine des stratégies de trading automatisées avec des options 
 
 Des publicités récentes sur les réseaux sociaux mentionnent certains noms célèbres comme :
 
-**- Isabelle Kocher
-- Jean-Pierre Mustier**
+- Isabelle Kocher
+- Jean-Pierre Mustier
 
 associés à des technologies de trading basées sur l’intelligence artificielle, parfois même en lien direct avec **Crystallum AI**.
 
